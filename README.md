@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/376fa3a809414df93f9e38ef572e8027/6b4dbd627e370819-68/s1280x1920/0830236e56523c1fcc7b7491216c57d5e19131f8.pnj)
 ![](https://64.media.tumblr.com/55a11dd7b73bfe5394a6c65e1181641b/b15d23a765658ea4-92/s1280x1920/8cae37195936f8b07cb9523893f92a2d90211538.pnj)
 <h1 align="center">  Mozart  </h1> 
-<p align="center"> 20 Gay // sx261 ESFP // HE
+<p align="center"> 20 // Gay // sx261 ESFP // HE
 <p align="center"> NAOYA ZEN'IN GACHIKOI -- I do not like talking about him with others unless I know you don't care about him
   
 ![](https://64.media.tumblr.com/0c40cd4f656ea3074f89df7438438f22/3c82bac22094e1b9-79/s1280x1920/148e3a522856406a4b46defcff155a089b80f123.pnj)
